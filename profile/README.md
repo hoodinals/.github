@@ -1,5 +1,9 @@
 ## Hi there 👋
 Profile Work in progress ...
+
+## We Are Hoodinals
+#### The Bitcoin Ordinals Hoodies
+#### Welcom to our World and dont hesitate to join our Communities above.
 <!--
 
 **Here are some ideas to get you started:**
